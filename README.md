@@ -1,2 +1,4 @@
-# -Intellectual-Property-Protection-Declaration
+By proceeding, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
+Intellectual-Property-Protection-Declaration
 This May 22, 2025 Intellectual Property Protection Declaration is intended as a public record of affirmation — not a claim of first invention or origin. It was created during a period of active protection and documentation and is supported by earlier USPTO filings, timestamped media, public posts, and hashed records that precede this declaration.
